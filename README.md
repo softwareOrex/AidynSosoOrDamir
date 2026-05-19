@@ -1,1 +1,1 @@
-# AidynSosoOrDamir
+# АйдынСосет
